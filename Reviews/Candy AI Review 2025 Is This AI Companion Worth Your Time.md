@@ -1,5 +1,6 @@
 Candy AI Review 2025: Is This AI Companion Worth Your Time?
 ===========================================================
+![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/82b16ee4-da7d-4e09-9d7d-7621cfbaad81)
 
 Welcome to my super fun review of [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) in 2025. Imagine having a buddy who’s always ready to chat, play, or even help you dream up cool stories—all powered by awesome tech! That’s what Candy AI promises. It’s an AI companion that lets you create your own virtual friend.
 
@@ -39,6 +40,7 @@ Key Takeaways
 
 What Is Candy AI?
 -----------------
+![close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/27e1c37e-a574-4086-93c1-56fa625f85b6)
 
 [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) is a fun app where you create your own AI buddy. You get to pick everything about them. Want a friend with blue hair and a goofy laugh? You got it! It’s like building a character in a video game, but this one talks back.
 
@@ -83,6 +85,7 @@ Some folks online say it’s worth it for the extras. Others stick to free mode 
 
 > [Claim Discount on Candy AI](https://candyai.gg/home2?via=dillip-kumar18)
 > -------------------------------------------------------------------------
+![close-up-front-look-of-beautiful-attrative-cute-ho](https://github.com/user-attachments/assets/efe3fd09-afe0-4e09-a892-09df5279e018)
 
 Is Candy AI Easy to Use?
 ------------------------
