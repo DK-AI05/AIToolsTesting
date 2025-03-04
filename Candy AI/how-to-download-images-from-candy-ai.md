@@ -1,4 +1,5 @@
 # How to Download Images from Candy AI: A Step-by-Step Guide for Beginners
+![close-up-front-look-of-beautiful-attrative-cute-ho](https://github.com/user-attachments/assets/5fb95b83-2f45-4a8d-9d22-f514b3edd4f2)
 Do you love creating cool pictures with [Candy AI](https://candyai.gg/home2?via=dillip-kumar18)? I bet you do! Candy AI is a fun tool that lets you make awesome images with just a few clicks. But what happens after you make those images? You want to save them, right? Saving your pictures from Candy AI is super easy, and I’m here to show you how.
 This guide is like a treasure map—it’ll take you step-by-step to download your images without any trouble. Whether you’re new to [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) or just need a little help, stick with me. We’ll have your pictures saved in no time, and you’ll feel like a pro! Let’s jump in and get started—your images are waiting!
 ## Key Takeaways
