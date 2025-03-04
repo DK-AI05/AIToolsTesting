@@ -1,8 +1,5 @@
 # How Much Is Candy AI? Pricing Breakdown and Value Check
 ![close-up-front-look-of-beautiful-attrative-cute-ho](https://github.com/user-attachments/assets/2e443aec-4b46-4ef1-9a5b-1019a5dd4211)
-![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)
-![close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/ea9ee9cf-7382-49a1-a4de-7bbeb28b1d70)
-
 Are you curious about **[Candy AI](https://candyai.gg/home2?via=dillip-kumar18)** and how much it costs? Maybe you’ve heard about this cool AI buddy that chats with you, makes pictures, and even sounds like a real friend. But before you jump in, you probably want to know: _How much is it? Is it worth my allowance?_
 Don’t worry—I’ve got you covered! In this blog post, we’ll break down the pricing of **[Candy AI](https://candyai.gg/home2?via=dillip-kumar18)**, check if it’s a good deal, and see what you get for your money. Imagine having an AI pal who’s always ready to talk or play—sounds fun, right?
 Keep reading because we’ll explore every detail together, and by the end, you’ll know if Candy AI fits your budget and fun meter!
@@ -16,6 +13,7 @@ Keep reading because we’ll explore every detail together, and by the end, you�
 **There’s a free version too.** You can try it out without spending a dime, but it has limits.
 **Refunds are possible.** If you ask within 24 hours and don’t use too much, you can get your money back.
 ## What Is Candy AI?
+![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)
 [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) is like a super fun robot friend you can talk to online. It’s an AI that chats with you, makes pictures, and even lets you create your own characters.
 You can pick how they look, act, and sound! People use it for fun, to make stories, or just to have someone to talk to anytime. It’s not a real person, but it feels pretty close sometimes.
 The folks who made [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) wanted it to be easy and exciting for everyone. You don’t need to be a tech genius to use it—just hop on their website or app, and you’re good to go.
@@ -33,6 +31,7 @@ The yearly plan is **$71.88** for the whole year, which breaks down to **$5.99 a
 The free plan is [Candy AI’s](https://candyai.gg/home2?via=dillip-kumar18) way of saying, “Hey, come try me out!” You don’t pay anything, and you still get to chat with AI buddies. You can send a few messages each day and play around with some basic features. It’s like getting a free sample at the ice cream shop.
 But here’s the catch—it’s not unlimited. You only get **50 messages** or so before it says, “Wait ’til tomorrow!” You can’t make your own characters or get fancy pictures either. It’s fun for a quick try, but if you want more, you’ll need to grab a paid plan. Still, it’s a great way to see if you like Candy AI without spending a penny!
 ## What Do You Get with the Monthly Plan?
+![close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/ea9ee9cf-7382-49a1-a4de-7bbeb28b1d70)
 The monthly plan costs **$12.99** and opens up a bunch more fun. You get **unlimited chats**, so you can talk to your AI friend all day long. Want to make pictures? You can ask for **100 images** every month. Plus, you get **500 voice messages**, which means your AI can talk back in a real voice!
 You also get to create your own AI characters. Pick their hair, eyes, and personality—make them just how you like! The chats are faster too, so no waiting around. It’s like upgrading from a small candy bag to a big bucket. If you love chatting and creating, this plan gives you a lot for your money.
 ## What’s Special About the Yearly Plan?
