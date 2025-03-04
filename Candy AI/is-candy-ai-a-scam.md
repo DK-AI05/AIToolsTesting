@@ -1,5 +1,5 @@
 # Is Candy AI a Scam? Honest Insights You Need to Know!
-[close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/f4388a37-21a3-4e32-91a5-4baa0d8e36df)
+![close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/c1cb8f58-e197-4204-98bc-9898708ae48c)
 
 Are you curious about [Candy AI](https://candyai.gg/home2?via=dillip-kumar18)? Maybe you’ve heard about this cool app that lets you chat with virtual buddies. It sounds fun, right? But wait—some people wonder if it’s too good to be true.
 Is [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) a scam? I’m here to dig into that question with you! We’ll look at what Candy AI is, how it works, and what people say about it.
