@@ -1,4 +1,8 @@
 # How Much Is Candy AI? Pricing Breakdown and Value Check
+![close-up-front-look-of-beautiful-attrative-cute-ho](https://github.com/user-attachments/assets/2e443aec-4b46-4ef1-9a5b-1019a5dd4211)
+![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)
+![close-up-front-look-of-beautiful-attractive-cute-h (1)](https://github.com/user-attachments/assets/ea9ee9cf-7382-49a1-a4de-7bbeb28b1d70)
+
 Are you curious about **[Candy AI](https://candyai.gg/home2?via=dillip-kumar18)** and how much it costs? Maybe you’ve heard about this cool AI buddy that chats with you, makes pictures, and even sounds like a real friend. But before you jump in, you probably want to know: _How much is it? Is it worth my allowance?_
 Don’t worry—I’ve got you covered! In this blog post, we’ll break down the pricing of **[Candy AI](https://candyai.gg/home2?via=dillip-kumar18)**, check if it’s a good deal, and see what you get for your money. Imagine having an AI pal who’s always ready to talk or play—sounds fun, right?
 Keep reading because we’ll explore every detail together, and by the end, you’ll know if Candy AI fits your budget and fun meter!
