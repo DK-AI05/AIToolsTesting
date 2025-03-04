@@ -1,4 +1,6 @@
 # Is Candy AI Free? Explore Costs and Free Features Today
+![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/26622ccc-ded2-4545-9f95-7f1df274de58)
+
 Are you curious about [Candy AI](https://candyai.gg/home2?via=dillip-kumar18)? Maybe you’ve heard about this cool app where you can chat with virtual buddies powered by artificial intelligence. It sounds like fun, right? But here’s the big question: _Is Candy AI free?_
 I know you want to find out if you can use it without spending any money—or if you need to pull out your piggy bank. Don’t worry! I’m here to break it all down for you in a super simple way.
 We’ll explore what you get for free, what costs money, and how it all works. Stick with me, because by the end, you’ll know everything you need to decide if [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) is your next favorite thing. Let’s dive in and have some fun exploring this awesome app together!
