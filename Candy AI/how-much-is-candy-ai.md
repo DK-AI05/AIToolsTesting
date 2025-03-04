@@ -13,7 +13,7 @@ Keep reading because we’ll explore every detail together, and by the end, you�
 **There’s a free version too.** You can try it out without spending a dime, but it has limits.
 **Refunds are possible.** If you ask within 24 hours and don’t use too much, you can get your money back.
 ## What Is Candy AI?
-![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)
+![close-up-front-look-of-beautiful-attractive-cute-h](https://github.com/user-attachments/assets/15407a65-7def-471b-9f28-488052fcd1df)!
 [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) is like a super fun robot friend you can talk to online. It’s an AI that chats with you, makes pictures, and even lets you create your own characters.
 You can pick how they look, act, and sound! People use it for fun, to make stories, or just to have someone to talk to anytime. It’s not a real person, but it feels pretty close sometimes.
 The folks who made [Candy AI](https://candyai.gg/home2?via=dillip-kumar18) wanted it to be easy and exciting for everyone. You don’t need to be a tech genius to use it—just hop on their website or app, and you’re good to go.
