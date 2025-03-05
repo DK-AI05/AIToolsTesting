@@ -27,3 +27,12 @@ A repository for experimenting with and evaluating various AI tools, including A
 <p>
   <a href="https://github.com/DK-AI05/AIToolsTesting/blob/07682846e1b9d573178f3e1740ad404cc7b5167c/Candy%20AI/is-candy-ai-worth-it.md">Is Candy AI Worth It? Features, Benefits, and Cost Analysis</a>
 </p>
+<p>
+  <a href="https://github.com/DK-AI05/AIToolsTesting/blob/9234035dfafde2c6cf78a9ef9b5228fdbc0ce68b/Candy%20AI/is-candy-ai-the-best.md">Is Candy AI the Best? Top AI Girlfriend Platforms in 2025</a>
+</p>
+<p>
+  <a href="https://github.com/DK-AI05/AIToolsTesting/blob/9234035dfafde2c6cf78a9ef9b5228fdbc0ce68b/Candy%20AI/best-ai-chatbot-girlfriends.md">3 Best AI Chatbot Girlfriends: Candy AI’s Features Put to the Test</a>
+</p>
+<p>
+  <a href="https://github.com/DK-AI05/AIToolsTesting/blob/9234035dfafde2c6cf78a9ef9b5228fdbc0ce68b/Candy%20AI/best-ai-girlfriend-for-free.md">Best AI Girlfriend for Free: Can Candy AI Deliver Without a Cost?</a>
+</p>
